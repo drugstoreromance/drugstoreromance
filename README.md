@@ -6,7 +6,7 @@ hi!! im mura, or nyra, or whatever cuntlord name you may know me as!
 
 i prefer he-him or she-her pronouns, but really feel free to use any BUT it-its.
 
-![](https://cdn.discordapp.com/attachments/887048432097853440/1185397860527771658/ezgif.com-video-to-gif-converted.gif?ex=658f76c9&is=657d01c9&hm=21165b70a6f231f72a8f27e030354ddd3d7de725a268bb9415472d100b663dce&)
+![](https://cdn.discordapp.com/attachments/887048432097853440/1185394799977709659/ezgif.com-video-to-gif-converted.gif?ex=658f73ef&is=657cfeef&hm=1271b0003f35386511feff88968f89fc7a206244a6a5ca753d6ecd4cf6c7aa11&)
 
 please dni if you're under 14. i prefer friends around my age range.
 
