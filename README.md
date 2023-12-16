@@ -6,6 +6,8 @@ hi!! im mura, or nyra, or whatever cuntlord name you may know me as!
 
 i prefer he-him or she-her pronouns, but really feel free to use any BUT it-its.
 
+![](https://cdn.discordapp.com/attachments/887048432097853440/1185394799977709659/ezgif.com-video-to-gif-converted.gif?ex=658f73ef&is=657cfeef&hm=1271b0003f35386511feff88968f89fc7a206244a6a5ca753d6ecd4cf6c7aa11&)
+
 please dni if you're under 14. i prefer friends around my age range.
 
 ^ i make exceptions! ^_^
@@ -17,3 +19,5 @@ i am a heavy,, major yuuji kinner! im not that comfortable with doubles but inte
 if you wanna know more info abt me, feel free to visit [rentry.co/-itadori](https://rentry.co/-itadori)
 
 [song that i rlly recommend pls listen ill marry yuo](https://open.spotify.com/track/180AbZduI6bYQIzwCHRwu9?si=8XTOxIgVTwSqXEszSyPPXA)
+
+![](https://cdn.discordapp.com/attachments/887048432097853440/1185395432508117063/ezgif.com-video-to-gif-converted.gif?ex=658f7486&is=657cff86&hm=39d940d30aea0f22f38a5837b5500deb0684b4a027d6d053be16f2e8991586c9&)
