@@ -7,7 +7,8 @@ hi!! im mura, or nyra, or whatever cuntlord name you may know me as!
 i prefer he-him or she-her pronouns, but really feel free to use any BUT it-its.
 
 please dni if you're under 14. i prefer friends around my age range.
-^^^ i make exceptions! ^_^
+
+^ i make exceptions! ^_^
 
 chronic mispeller please forgive me if you dont understand what ancient dialect may spawn from my keyboard
 
