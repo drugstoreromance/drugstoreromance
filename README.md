@@ -14,6 +14,4 @@ chronic mispeller please forgive me if you dont understand what ancient dialect 
 
 i am a heavy,, major yuuji kinner! im not that comfortable with doubles but interact if you'd like...
 
-[song that i rlly recommend pls listen ill marry yuo](https://open.spotify.com/track/180AbZduI6bYQIzwCHRwu9?si=8XTOxIgVTwSqXEszSyPPXA)
-
 ![](https://cdn.discordapp.com/attachments/887048432097853440/1185395432508117063/ezgif.com-video-to-gif-converted.gif?ex=658f7486&is=657cff86&hm=39d940d30aea0f22f38a5837b5500deb0684b4a027d6d053be16f2e8991586c9&)
