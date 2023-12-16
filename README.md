@@ -14,4 +14,4 @@ chronic mispeller please forgive me if you dont understand what ancient dialect 
 
 i am a heavy,, major yuuji kinner! im not that comfortable with doubles but interact if you'd like...
 
-![](https://cdn.discordapp.com/attachments/887048432097853440/1185396530417508462/ezgif.com-video-to-gif-converted.gif?ex=658f758c&is=657d008c&hm=0860fc045b64e73b325cde9cc02fc045996406fd65b91ff12e8ad8545dc8c613&)
+![](https://cdn.discordapp.com/attachments/887048432097853440/1185397860527771658/ezgif.com-video-to-gif-converted.gif?ex=658f76c9&is=657d01c9&hm=21165b70a6f231f72a8f27e030354ddd3d7de725a268bb9415472d100b663dce&)
