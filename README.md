@@ -10,13 +10,9 @@ i prefer he-him or she-her pronouns, but really feel free to use any BUT it-its.
 
 please dni if you're under 14. i prefer friends around my age range.
 
-^ i make exceptions! ^_^
-
 chronic mispeller please forgive me if you dont understand what ancient dialect may spawn from my keyboard
 
 i am a heavy,, major yuuji kinner! im not that comfortable with doubles but interact if you'd like...
-
-if you wanna know more info abt me, feel free to visit [rentry.co/-itadori](https://rentry.co/-itadori)
 
 [song that i rlly recommend pls listen ill marry yuo](https://open.spotify.com/track/180AbZduI6bYQIzwCHRwu9?si=8XTOxIgVTwSqXEszSyPPXA)
 
