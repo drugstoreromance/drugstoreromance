@@ -6,6 +6,8 @@ he/him or she/her prns, feel free to use any BUT it/its.
 
 currently matching rentries with nora (we are not the aame person stop!)
 
+please interact i don't always bite
+
 ![](https://cdn.discordapp.com/attachments/887048432097853440/1185394799977709659/ezgif.com-video-to-gif-converted.gif?ex=658f73ef&is=657cfeef&hm=1271b0003f35386511feff88968f89fc7a206244a6a5ca753d6ecd4cf6c7aa11&)
 
 under 14's do not interact!!!!
