@@ -13,3 +13,5 @@ under 14's do not interact!!!!
 chronic mispeller please forgive me if you dont understand what ancient dialect may spawn from my keyboard
 
 i heavily identify as hit character [yuuji itadori](https://jujutsu-kaisen.fandom.com/wiki/Yuji_Itadori)! doubles are not exactly welcome but idrm if u int
+
+oh yea btw please dont copy my skins
