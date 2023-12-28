@@ -1,4 +1,4 @@
-![](https://cdn.discordapp.com/attachments/1141444765045506150/1181659508091650230/ezgif.com-gif-maker.gif?ex=6581dd2c&is=656f682c&hm=a1ebb6bc635c6da7bea5a3cb0b03eab92595ee366604d376be68ffa38f5cf3c6&)
+![](https://cdn.discordapp.com/attachments/887048432097853440/1189955860148015104/ezgif.com-video-to-gif-converter.gif?ex=65a00bc1&is=658d96c1&hm=f10d2eae072c538f035a3570511be13e218cff3a637e5fd7c1e8be0d0726ec49&)
 
 mura, or nyra, or whatever cuntlord name you may know me as ! 7w2 enf something idk check my [rentry](https://rentry.co/-childpsychology) bozo
 
@@ -8,7 +8,7 @@ currently matching rentries with nora (we are not the aame person stop!)
 
 please interact i don't always bite
 
-![](https://cdn.discordapp.com/attachments/887048432097853440/1185394799977709659/ezgif.com-video-to-gif-converted.gif?ex=658f73ef&is=657cfeef&hm=1271b0003f35386511feff88968f89fc7a206244a6a5ca753d6ecd4cf6c7aa11&)
+![](https://cdn.discordapp.com/attachments/887048432097853440/1189961368087048285/ezgif.com-video-to-gif-converter.gif?ex=65a010e2&is=658d9be2&hm=0dba15e2fe84cdc6db1cf82e04731dca6a43ef741442f597c466ae89f024b136&)
 
 under 14's do not interact!!!!
 
