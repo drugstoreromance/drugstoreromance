@@ -8,7 +8,7 @@ currently matching rentries with nora (we are not the aame person stop!)
 
 please interact i don't always bite
 
-![](https://cdn.discordapp.com/attachments/887048432097853440/1189961368087048285/ezgif.com-video-to-gif-converter.gif?ex=65a010e2&is=658d9be2&hm=0dba15e2fe84cdc6db1cf82e04731dca6a43ef741442f597c466ae89f024b136&)
+![](https://cdn.discordapp.com/attachments/887048432097853440/1189963360926699530/ezgif.com-video-to-gif-converter.gif?ex=65a012bd&is=658d9dbd&hm=068f3774c9936b8aedaca5aadab9e7cf41674e5639ae9402ef5252b9258f2823&)
 
 under 14's do not interact!!!!
 
