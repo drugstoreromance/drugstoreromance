@@ -15,3 +15,5 @@ chronic mispeller please forgive me if you dont understand what ancient dialect 
 i heavily identify as hit characters [yuuji itadori](https://jujutsu-kaisen.fandom.com/wiki/Yuji_Itadori) and [bachira meguru](https://bluelock.fandom.com/wiki/Meguru_Bachira)! doubles pls limit interactions unless if you sneak under my discomfort radar
 
 oh yea btw please dont copy my skins ill sit n stare hopelessly if you do
+
+i would centre text but thats too much work on gitubv
