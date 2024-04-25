@@ -1,7 +1,7 @@
 10th rodeo of github making..
 
 a man of many names , check my rentries to see which ones i currently use the most
-- as of april, i mainly go by rot or lavy .
+- as of april, i mainly go by rot or lavy . if you've known me earlier, continue calling me mura or whatever !
 
 dni under 14s i make ((rare)) exceptions
 
