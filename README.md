@@ -7,7 +7,7 @@ a man of many names , check my rentries to see which ones i currently use the mo
 
 chronic mispeller please forgive me if you dont understand what ancient dialect may spawn from my keyboard
 
-i heavily identify as hit characters [tenma tsukasa](https://projectsekai.fandom.com/wiki/Tenma_Tsukasa) ! doubles irdc if you int just dont make it awk/weird ,, unless if your molecular structures are detected by my discomfort radar
+i heavily identify as hit characters [tenma tsukasa](https://projectsekai.fandom.com/wiki/Tenma_Tsukasa) and [sigma](https://bungostraydogs.fandom.com/wiki/Sigma)! doubles irdc if you int just dont make it awk/weird ,, unless if your molecular structures are detected by my discomfort radar
 
 oh yea btw please dont copy my ( ponytown ) skins ill sit n stare hopelessly if you do.. 
 
