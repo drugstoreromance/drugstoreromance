@@ -1,3 +1,4 @@
+![](https://media.tenor.com/dNWnWwS0Af0AAAAi/project-sekai-tsukasa-tenma.gif)
 welcome dear audience!, in life you either ride or die. so welcome to my 10th rodeo of github making..
 
 a man of many names , check my rentries to see which ones i currently use the most
