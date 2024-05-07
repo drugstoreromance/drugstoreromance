@@ -27,3 +27,8 @@ i heavily identify as hit characters [tenma tsukasa](https://projectsekai.fandom
   
 oh yea btw please dont copy my ( ponytown ) skins ill sit n stare hopelessly if you do..  </br> ^waah :( fkms /nsrs
 </div>
+
+<div align="center">
+  
+expect me to unconsciously mirror your personality or energy,, i do it by habit. lmk if you dont appreciate this and i will do my best not 2!
+</div>
