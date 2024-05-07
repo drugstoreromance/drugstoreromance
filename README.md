@@ -5,7 +5,7 @@ harro !!!! ![](https://media.tenor.com/dNWnWwS0Af0AAAAi/project-sekai-tsukasa-te
 
 <div align="center">
   
-a man of many names , check my rentries to see which ones i currently use the most </br> - as of april, i mainly go by rot, pure, shuri or lavy . if you've known me earlier, continue calling me mura or whatever !
+a man of many names , check my rentries to see which ones i currently use the most </br> - as of april, i mainly go by different names due to not knowing what name suits me best. likewise, if you prefer to call me by other names go ahead !
 </div>
 
 <div align="center">
