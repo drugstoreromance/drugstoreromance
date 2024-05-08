@@ -15,12 +15,12 @@ chronic mispeller please forgive me if you dont understand what ancient dialect 
 
 <div align="center">
 
-i heavily identify as hit characters [tenma tsukasa](https://projectsekai.fandom.com/wiki/Tenma_Tsukasa) and [sigma](https://bungostraydogs.fandom.com/wiki/Sigma) </br> doubles irdc if you int just dont make it awk/weird ,, unless if your molecular structures are detected by my discomfort radar
+i heavily identify as [tenma tsukasa](https://projectsekai.fandom.com/wiki/Tenma_Tsukasa) and [sigma](https://bungostraydogs.fandom.com/wiki/Sigma)
 </div>
 
 <div align="center">
   
-oh yea btw please dont copy my ( ponytown ) skins ill sit n stare hopelessly if you do..  </br> ^waah :( fkms /nsrs
+oh yea btw please dont copy my ( ponytown ) skins ill sit n stare hopelessly if you do..  </br>
 </div>
 
 <div align="center">
