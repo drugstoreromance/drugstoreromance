@@ -35,5 +35,5 @@ harro !!!! ![](https://media.tenor.com/dNWnWwS0Af0AAAAi/project-sekai-tsukasa-te
 
 <div align="center">
   
-my ass omw to work for just eat after getting my license in few months' time
+my ass omw to work for just eat after being able to get my license in few months' time
 </div>
