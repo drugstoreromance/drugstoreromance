@@ -32,3 +32,8 @@ expect me to unconsciously mirror your personality or energy,, i do it by habit.
   
 harro !!!! ![](https://media.tenor.com/dNWnWwS0Af0AAAAi/project-sekai-tsukasa-tenma.gif)
 </div>
+
+<div align="center">
+  
+my ass omw to work for just eat after getting my license in few months' time
+</div>
