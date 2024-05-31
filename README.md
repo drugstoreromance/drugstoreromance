@@ -1,4 +1,10 @@
 <div align="center">
+  
+![](https://komarev.com/ghpvc/?username=drugstoreromance&color=blueviolet)
+
+</div>
+
+<div align="center">
 
   ![](https://media.discordapp.net/attachments/887048432097853440/1237805959292649513/Untitled128_20240508173845.png?ex=663cfc22&is=663baaa2&hm=090f0bb5e04a4107aca9b430a9944f87a604fd4201b2e423bcb8a5b51f7bfce4&=&format=webp&quality=lossless&width=437&height=437)
 </div>
