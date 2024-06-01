@@ -16,30 +16,23 @@ a man of many names </br> dni under 14s i make ((rare)) exceptions (no, mie, you
 
 <div align="center">
   
-chronic mispeller please forgive me if you dont understand what ancient dialect may spawn from my keyboard
-</br> 
-
-<div align="center">
-
+chronic mispeller please forgive me if you dont understand what ancient dialect may spawn from my keyboard </br>
 i heavily identify as [tenma tsukasa](https://projectsekai.fandom.com/wiki/Tenma_Tsukasa) and [sigma](https://bungostraydogs.fandom.com/wiki/Sigma)
 </div>
 
 <div align="center">
   
 oh yea btw please dont copy my ( ponytown ) skins ill sit n stare hopelessly if you do..  </br>
+expect me to unconsciously mirror your personality or energy,, i do it by habit.
 </div>
 
 <div align="center">
-  
-expect me to unconsciously mirror your personality or energy,, i do it by habit. lmk if you dont appreciate this and i will do my best not 2!
+
+  [cbox](https://my.cbox.ws/spiderweb) // [rentry](https://rentry.co/gambledprayers) // [prns](https://en.pronouns.page/@shuwiqen)  // [awareness page](https://rentry.co/uyghurawareness) // [consider helping palestine](https://arab.org/click-to-help/palestine/)
+
 </div>
 
 <div align="center">
   
 harro !!!! ![](https://media.tenor.com/dNWnWwS0Af0AAAAi/project-sekai-tsukasa-tenma.gif)
-</div>
-
-<div align="center">
-  
-my ass omw to work for just eat after being able to get my license in few months' time
 </div>
