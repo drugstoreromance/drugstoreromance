@@ -3,13 +3,6 @@
 ![](https://komarev.com/ghpvc/?username=drugstoreromance&color=blueviolet)
 
 </div>
-
-<div align="center">
-
-  ![](https://i.ibb.co/1f0Ng95/Untitled15-20240715223929.png)
-</div>
-
-<div align="center">
   
 fuck you. may i have this dance? </br> ~ a man of many names
 </div>
