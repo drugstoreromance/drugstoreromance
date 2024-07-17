@@ -23,6 +23,6 @@ expect me to unconsciously mirror your personality or energy. i do it by habit.
 
 <div align="center">
 
-  [cbox](https://my.cbox.ws/spiderweb) // [rentry](https://rentry.co/gambledprayers) // [prns](https://en.pronouns.page/@shuwiqen)  // [awareness page](https://rentry.co/uyghurawareness) // [consider helping palestine](https://arab.org/click-to-help/palestine/)
+  [cbox](https://my.cbox.ws/spiderweb) // [rentry](https://rentry.co/gambledprayers) // [prns](https://en.pronouns.page/@shuwiqen)  // [awareness page](https://rentry.co/uyghurawareness) // [consider helping palestine](https://arab.org/click-to-help/palestine/)  // [want to stop your rentry embeds from disappearing?](https://imgbb.com)
 
 </div>
