@@ -18,7 +18,7 @@ i heavily identify as [yugi amane/hanako](https://hanako-kun.fandom.com/wiki/Han
 
 <div align="center">
 
-expect me to unconsciously mirror your personality or energy. i do it by habit.
+expect me to unconsciously mirror your personality or energy. i do it by habit. </br> i tend to put what im craving as my ponytown name lolo
 </div>
 
 <div align="center">
