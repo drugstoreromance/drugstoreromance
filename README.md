@@ -6,19 +6,19 @@
 
 <div align="center">
   
-fuck you. may i have this dance? </br> ~ a man of many names
+` fuck you. may i have this dance? `
 
 </div>
 
 <div align="center">
-  
-chronic mispeller please forgive me if you dont understand what ancient dialect may spawn from my keyboard </br>
+
 i heavily identify as [yugi amane/hanako](https://hanako-kun.fandom.com/wiki/Hanako) + more.
+
 </div>
 
 <div align="center">
 
-expect me to unconsciously mirror your personality or energy. i do it by habit. </br> i tend to put what im craving as my ponytown name lolo </br> add me on airbuds! @i.fw.tyler
+expect me to unconsciously mirror your personality or energy. i do it by habit.
 </div>
 
 <div align="center">
