@@ -12,12 +12,6 @@
 
 <div align="center">
 
-i heavily identify as [yugi amane/hanako](https://hanako-kun.fandom.com/wiki/Hanako) + more.
-
-</div>
-
-<div align="center">
-
 expect me to unconsciously mirror your personality or energy. i do it by habit.
 </div>
 
