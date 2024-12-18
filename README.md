@@ -17,6 +17,6 @@ expect me to unconsciously mirror your personality or energy. i do it by habit.
 
 <div align="center">
 
-[rentry1](https://rentry.co/gambledprayers) // [hoard](https://rentry.co/nakohoard)// [awareness page](https://rentry.co/uyghurawareness) // [consider helping palestine](https://arab.org/click-to-help/palestine/)  // [want to stop your rentry embeds from disappearing?](https://imgbb.com)
+[rentry1](https://rentry.co/gambledprayers) [rentry2](https://rentry.co/-prettiestprincess) // [hoard](https://rentry.co/nakohoard)// [awareness page](https://rentry.co/uyghurawareness) // [consider helping palestine](https://arab.org/click-to-help/palestine/)  // [want to stop your rentry embeds from disappearing?](https://imgbb.com)
 
 </div>
