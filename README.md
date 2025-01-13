@@ -12,7 +12,7 @@
 
 <div align="center">
 
-expect me to unconsciously mirror your personality or energy. i do it by habit.
+migrated accounts to @akchouu
 </div>
 
 <div align="center">
